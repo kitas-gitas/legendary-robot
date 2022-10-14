@@ -1,0 +1,1 @@
+Kazka klaseje padariau
